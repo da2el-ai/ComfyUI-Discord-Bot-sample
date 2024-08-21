@@ -10,5 +10,5 @@
 すると使えるようになるかもしれません。
 
 詳しくは
-https://editor.note.com/notes/nf388099ac18f
+https://note.com/da2el_ai/n/nf388099ac18f
 をご覧下さい。
